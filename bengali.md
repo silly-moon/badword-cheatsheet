@@ -1,3 +1,5 @@
+------------------------------------------------
+
 - `abal` - Stupid.
 - `bokachoda` - Stupid Fucker/DumbFuck.
 - `baal` - Pubic hair/hairs of balls.
